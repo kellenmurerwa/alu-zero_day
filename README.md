@@ -1,1 +1,1 @@
-Kwiga biravuna
+Kwiga biravun
